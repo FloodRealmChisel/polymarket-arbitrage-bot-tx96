@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket automation-script with top Polymarket Automation Script | cross-chain-arbitrage + trade-sniping. Featuring cross-chain-arbitrage and trade-sniping,
 
 
 
